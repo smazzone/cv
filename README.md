@@ -1,1 +1,1 @@
-# Stefano Mazzone's web cv
+# Stefano Mazzone's cv
